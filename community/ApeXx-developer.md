@@ -1,6 +1,6 @@
 # João Augusto R. De Oliveira
 
-Futuro Engenheiro De Softawe
+Futuro Engenheiro De Software
 
 ### Conecte-se comigo
 
